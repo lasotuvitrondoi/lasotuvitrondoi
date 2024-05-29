@@ -1,6 +1,3 @@
-<h1 ><strong>Sao Thai Duong chieu Menh noi len y nghia gi? Luan chi tiet</strong></h1>
-
-<p >Sao Thái Dương chiếu Mệnh chủ về mẫu người thông minh, thẳng thắn, chính trực, tốt bụng nhưng đôi khi nóng tính và có phần bướng bỉnh.</p>
 
 <h1 ><strong>Sao Thái Dương chiếu Mệnh - Chủ về người thông minh, tốt bụng nhưng nóng nảy</strong></h1>
 
